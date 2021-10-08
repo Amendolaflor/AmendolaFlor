@@ -2,8 +2,8 @@
 
 
 
-### 🤓 Just a frontEnd student!
+### 🤓 Just a frontEnd student.
 
 ### 🤜🤛 ready collaborate with nice people!
 
-### ❤ Coding with love
+### ❤ Coding with love.
