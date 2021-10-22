@@ -1,4 +1,4 @@
-# Hi there 🥰 I´m Flor
+# Hi there! 🥰 I´m Flor
 
 
 
